@@ -1,4 +1,6 @@
-c + h ok, w2i as i may be offtab
+usually near the bakery area! c + h ok, w2i as i may be offtab, don't be afraid to int with me
+
+i don't mind roleplaying just don't make it weird, i may also be ooc
 
 i like forsaken, phighting, blocktales, roblox in general, and a bunch of other stuff
 
