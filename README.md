@@ -4,7 +4,7 @@ i don't mind roleplaying just don't make it weird, i may also be ooc
 
 you can copy ASPECTS of my ponies (e.g. hair, clothes, face) but not the whole thing
 
-i like forsaken, phighting, blocktales, roblox in general, and a bunch of other stuff
+i like pokemon, phighting, roblox in general, and a bunch of other stuff
 
 no dni i'll just block you if i don't like you
 
