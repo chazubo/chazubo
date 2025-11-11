@@ -9,6 +9,6 @@ currently into searching for a world that doesn't exist and collinlock16 args, a
 
 no dni i'll just block you if i don't like you
 
-[![G5O6OcDbMAAempa](https://github.com/user-attachments/assets/19e25618-b250-41b2-a451-aef952d1322a)](https://x.com/endisnio/status/1987136806509551914/photo/1)
+![G5O6OcDbMAAempa](https://github.com/user-attachments/assets/f95b3127-1bdd-423d-8435-7df67f4dd8a9)
 <sub>artwork by endisnio on twitter</sub>
 
