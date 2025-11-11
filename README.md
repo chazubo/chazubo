@@ -5,7 +5,7 @@ i don't mind roleplaying just don't make it weird, i may also be ooc
 you can copy ASPECTS of my ponies (e.g. hair, clothes, face) but not the whole thing
 > credit is not necessary i don't care
 
-currently into minecraft args (mainly **searching for a world that doesn't exist**), also like phighting and roblox 
+currently into searching for a world that doesn't exist and collinlock16 args, also like phighting and roblox 
 
 no dni i'll just block you if i don't like you
 
